@@ -1,0 +1,1 @@
+# 109--Propeties-of-normal-Distrubution
